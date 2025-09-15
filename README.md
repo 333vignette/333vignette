@@ -1,4 +1,5 @@
-<img width="540" height="272" alt="image" src="https://github.com/user-attachments/assets/3e9e6c02-e0b6-4da3-bfee-7aabc2fa96eb" />
+![hippo](https://i.imgur.com/SRtspsZ.gif)
+
 
 clikkie |-/ fixated on the pilots
 
@@ -7,7 +8,7 @@ afk a lot ... i usually just come online to look around :p if i don't respond i'
 
 I LOVE CLANCYBEARER!
 
-<img width="220" height="220" alt="image" src="https://github.com/user-attachments/assets/4ee6176b-272b-488f-be9c-994d3497aec7" />
+![hippo](https://tenor.com/mHdQj2akwpy.gif)
 
 check out my linked tumblr :3 
 ( it's usually just tøp shitposting and oc stuffs... )
