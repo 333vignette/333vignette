@@ -1,6 +1,6 @@
 <div align="center">
 
-autistic + clikkie |-/ fixated on the pilots<br><br>
+autistic + clikkie |-/ fixated on tøp<br><br>
 
 <img src="https://github.com/333vignette/333vignette/raw/main/ezgif-5142f457c3da78-ezgif.com-optimize.gif" alt="bishop clancy" width="400"/><br><br>
 
