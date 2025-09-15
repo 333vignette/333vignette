@@ -1,5 +1,5 @@
 
-![Alt text](https://github.com/333vignette/333vignette/blob/main/ezgif-5142f457c3da78-ezgif.com-optimize.gif)
+![Alt text](https://raw.githubusercontent.com/333vignette/333vignette/main/ezgif-5142f457c3da78-ezgif.com-optimize.gif)
 
 clikkie |-/ fixated on the pilots
 
