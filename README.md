@@ -1,5 +1,5 @@
 
-<img src="https://i.imgur.com/7TBfUyi.gif" width="600" />
+<img src="https://i.imgur.com/MdHkv4G.gif" width="600" />
 
 clikkie |-/ fixated on the pilots
 
