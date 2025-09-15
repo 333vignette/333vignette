@@ -1,5 +1,5 @@
 
-<img src="https://raw.githubusercontent.com/333vignette/333vignette/main/ezgif-5142f457c3da78-ezgif.com-optimize.gif" width="600" />
+<img src="https://i.imgur.com/7TBfUyi.gif" width="600" />
 
 clikkie |-/ fixated on the pilots
 
