@@ -1,5 +1,5 @@
 
-![Alt Text]("https://i.imgur.com/SRtspsZ.gif")
+![alt text](https://github.com/333vignette/333vignette/blob/main/ezgif-5142f457c3da78.gif)
 
 clikkie |-/ fixated on the pilots
 
@@ -8,7 +8,7 @@ afk a lot ... i usually just come online to look around :p if i don't respond i'
 
 I LOVE CLANCYBEARER!
 
-![Alt Text]("https://tenor.com/mHdQj2akwpy.gif")
+![alt text](https://github.com/333vignette/333vignette/blob/main/twenty-one-pilots-tyler-joseph.gif)
 
 check out my linked tumblr :3 
 ( it's usually just tøp shitposting and oc stuffs... )
