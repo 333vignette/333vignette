@@ -1,7 +1,10 @@
 
-<img src="https://i.imgur.com/MdHkv4G.gif" width="600" />
+autistic + clikkie |-/ fixated on the pilots
 
-clikkie |-/ fixated on the pilots
+<p align="center">
+  <img src="https://i.imgur.com/MdHkv4G.gif" alt="bishop clancy" width="400"/>
+</p>
+
 
 i luv to interact but i'm also kind of awkward... so sorry (ノ_<。)
 
