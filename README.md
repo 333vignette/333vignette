@@ -2,7 +2,7 @@
 autistic + clikkie |-/ fixated on the pilots
 
 <p align="center">
-  <img src="https://i.imgur.com/MdHkv4G.gif" alt="bishop clancy" width="400"/>
+  <img src="https://github.com/333vignette/333vignette/raw/main/ezgif-5142f457c3da78-ezgif.com-optimize.gif" alt="bishop clancy" width="400"/>
 </p>
 
 
