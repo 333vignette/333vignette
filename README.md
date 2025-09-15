@@ -1,6 +1,5 @@
- <img src="https://i.imgur.com/SRtspsZ.gif
-"/>
 
+![Alt Text](https://i.imgur.com/SRtspsZ.gif)
 
 clikkie |-/ fixated on the pilots
 
@@ -9,9 +8,7 @@ afk a lot ... i usually just come online to look around :p if i don't respond i'
 
 I LOVE CLANCYBEARER!
 
- <img src="https://tenor.com/mHdQj2akwpy.gif
-"/>
-
+![Alt Text]("https://tenor.com/mHdQj2akwpy.gif)
 
 check out my linked tumblr :3 
 ( it's usually just tøp shitposting and oc stuffs... )
