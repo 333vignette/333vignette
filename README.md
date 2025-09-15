@@ -6,7 +6,7 @@ autistic + clikkie |-/ fixated on tøp<br><br>
 
 i luv to interact but i'm also kind of awkward... so sorry (ノ_<。)<br><br>
 also afk a lot ... i usually just come online to look around :p <br><br>
-if i don't respond i'm not ignoring you!<br><br>
+if i don't respond i'm not ignoring you! i'm probably tabbed out!<br><br>
 ୨୧ ⏔⏔⏔⏔ ✦ ⏔⏔⏔⏔ ୨୧
 
 I LOVE CLANCYBEARER!
