@@ -11,7 +11,7 @@ if i don't respond i'm not ignoring you! i'm probably tabbed out!<br><br>
 
 I LOVE CLANCYBEARER!
 
-check out my linked tumblr :3 <br>
-( it's usually just tøp shitposting and oc stuffs... )
+check out my linked tumblr and instagram :3 <br>
+( it's usually just tøp shitposting and art. sometimes oc stuffs )
 
 </div>
