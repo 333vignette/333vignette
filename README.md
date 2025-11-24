@@ -2,7 +2,7 @@
 
 autistic + clikkie |-/ very into adventure time rn <br><br>
 
-<img src="https://github.com/333vignette/333vignette/raw/main/ezgif-5142f457c3da78-ezgif.com-optimize.gif" alt="bishop clancy" width="400"/><br><br>
+<img src="https://github.com/333vignette/333vignette/blob/main/fern-adventure-time.gif" alt="fern" width="400"/><br><br>
 
 i luv to interact but i'm also kind of awkward... so sorry (ノ_<。)<br><br>
 also afk a lot ... i usually just come online to look around :p <br><br>
@@ -15,3 +15,4 @@ check out my linked tumblr and instagram :3 <br>
 ( it's usually just tøp shitposting and art. sometimes oc stuffs )
 
 </div>
+
