@@ -11,8 +11,7 @@ if i don't respond i'm not ignoring you! i'm probably tabbed out!<br><br>
 
 I LOVE FERN! he is so me!!!!
 
-check out my linked tumblr and instagram :3 <br>
-( it's usually just tøp shitposting and art. sometimes oc stuffs. i'm also barely active on them!!!)
+check out my linked instagram :3 <br>
 
 </div>
 
