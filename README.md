@@ -9,7 +9,7 @@ also afk a lot ... i usually just come online to look around :p <br><br>
 if i don't respond i'm not ignoring you! i'm probably tabbed out!<br><br>
 ୨୧ ⏔⏔⏔⏔ ✦ ⏔⏔⏔⏔ ୨୧
 
-I LOVE FERN! he is so me!!!!
+i love johnny silverhand <3
 
 check out my linked instagram :3 <br>
 
