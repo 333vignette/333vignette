@@ -1,6 +1,6 @@
 <div align="center">
 
-autistic + clikkie |-/ very into adventure time rn <br><br>
+autistic <br><br>
 
 <img src="https://github.com/333vignette/333vignette/blob/main/fern-adventure-time.gif" alt="fern" width="400"/><br><br>
 
