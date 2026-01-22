@@ -12,6 +12,7 @@ if i don't respond i'm not ignoring you! i'm probably tabbed out!<br><br>
 i love johnny silverhand <3
 
 check out my linked instagram :3 <br>
+and if you're super cool, look at my linked store..
 
 </div>
 
